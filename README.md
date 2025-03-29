@@ -18,3 +18,4 @@
 - Amo salir de mi casa y hacer cualquier tipo de plan
 - Soy habil con la computacion
 - Team PC
+- Me gusta mirar videos
